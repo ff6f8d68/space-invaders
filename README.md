@@ -1,1 +1,1 @@
-space inavders recoded for microbit **needs game zip**
+space inavders recoded for microbit **NEEDS GAME ZIP!**
